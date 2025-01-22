@@ -1,0 +1,29 @@
+# Bislett 24-timers
+
+Så var det gjort, min debut på et 24-timers løp. En merkelig opplevelse med kraftige nedturer og oppturer underveis.
+
+Siden jeg ikke bor så langt unna Bislett, bestemte jeg meg for å ankomme sent. Var der rundt en halvtime før det hele begynte, noe som vel var i seneste laget. Var mye som skulle gjøres før start; hente nummerlapp, skifte, finne plass til utstyrsboksen, montere seng (!), snakke med folk, smøre seg inn med vaselin (kremt) etc. Ble litt stress for å få på seg nummerlappen før startskuddet gikk. Sånn i ettertid virker det ganske latterlig at jeg drev og stresset rundt for jeg kunne godt brukt et kvarter ekstra uten at det hadde gjort noe særlig fra eller til.
+
+Så var det hele i gang. Rundt og rundt, time etter time, monotont, men stadig nye folk å prate med. Galgenhumoren satt løst og det var ikke mange rundene ut i løpet før folk begynte å si at "nå var det ikke lenge igjen". Interessant å se ulike strategier. De som åpnet med høyest fart fikk det etterhvert. Jeg prøvde å løpe så langsomt jeg kunne. Og det holdt vel ca 6 timer. Da kom første store nedtur. Føttene var hovnet opp, vannblemmene piplet fram og jeg hadde vondt i ribbeina(!). Hadde tenkt å bryte. Så ingen mening i å fortsette 18 timer til. Det virket uendelig lenge og senga hjemme fristet mer. Monotonien knakk meg nesten. Noen oppmuntrende SMS'er fra Einar førte dog til at jeg bestemte meg for å fortsette. Holdt en del følge med Maria og Ellen etter det, og det var fint og oppmuntrende. Jeg løp litt til helt til neste nedtur kom etter rundt 9 timer. Da ble jeg svimmel og gikk og la meg nedpå en halvtimes tid. Det var ikke lurt! Å komme i gang igjen var mildt sagt tøffe saker.
+
+Tusla videre fram til 12 timer da festen var slutt, som Hårek skrev. Hadde egentlig ikke noe mål lenger. Innså at 150 km ville bli vanskelig. Herregud, det er jo mulig å GÅ 15 mil på 24 timer... Trodde jeg før jeg begynte. Kroppen ville det annerledes. Tusla på et par timer til, hørte på hørespill på mp3-spilleren og hadde det greit. Da Hårek bestemte seg for å gi seg fant jeg ut at jeg ihvertfall kunne gå lenger enn ham. Som sagt så gjort. Da jeg hadde passert Hårek hadde jeg definitivt fått nok og gikk og la meg... Da var det maks 10 personer som fortsatt LØP ute på banen. De andre gikk, sov, satt, lå eller hadde rett og slett brutt. Eller, "løp" er kanskje feil ord. Beveget seg en smule kjappere enn gåtempo er en mer korrekt beskrivelse.
+
+Etter noen timers søvn var det på'n igjen. Måtte gå en hel runde på 545 m for å hente Oslofjordflagget og treffe min samboer som kom på besøk. Hun hadde vært der kvelden i forveien også og var overrasket over hvordan stemningen hadde forandret seg. Lørdag kveld var alle i godt humør, stemningen var på topp og det virket som om vi var på fest. Kl 09 søndag morgen var stemningen helt annerledes. Jeg merket det ikke selv først, men hun mente at det var som om vi alle hadde vært på fest og vi satt bakfulle tilbake og var helt fjerne. "Som dagen etter en skikkelig russefest", mente hun. Det kan nok stemme, for jeg følte meg selv rimelig koko i knotten etter for lite søvn, den fysiske anstrengelsen og det helt vanvittige i å bevege seg rundt og rundt på en bane i time etter time.
+
+Men nok var nok. Jeg pakka sammen sakene mine og dro hjem. Jeg hadde gjort mitt. Jeg var litt skuffa over at det gikk såpass dårlig, men innså at jeg allikevel hadde vært med på noe grensesprengende. Og hva er vel livet uten å sprenge en grense i ny og ne?
+
+Noen ettertanker:
+- På puls.se kan jeg lese om en av 12-timers deltagernes opplevelser: "Detta var ett av det absolut jobbigaste jag har gjort. En ironman är betydligt enklare."
+En annen jeg snakket med underveis, og som har god erfaring fra både ultra og triatlon, sa at en ironman er som å løpe 70 km. Det er sikkert mange faktorer som påvirker, mange variasjoner hit og dit og ikke særlig sammenlignbart, men for meg som aldri har deltatt på noen ironman så høres det på en måte litt befriende ut. Det blir ikke veldig mye verre, ihvertfall... Bare på en annen måte, kanskje?
+
+- Mitt treningsgrunnlag var for dårlig. De siste to månedene har jeg utelukkende løpt fram og tilbake til jobb hver dag, ca. 5 km en vei. Burde hatt flere lange turer i beina for å herde dem. Har vært flink til dette før, men tidsklemma har klemt meg litt for mye i det siste.
+- Beina er ikke verre enn etter en middels maraton. Det er føttene som er ødelagte. Tror jeg må sette meg godt inn i talkums vidunderlige verden om jeg skal være med på noe lignende igjen. Bytta sokker og sko underveis, men føttene hovnet opp og var ikke gode. De erfarne ultraløperne hadde med seg et par sko i en størrelse større enn de vanligvis bruker. Virker som en god ide.
+- Inntak av næring funket veldig bra. Hadde matlyst hele veien og ingen problemer med magen.
+- Åpningsfarten kan ikke være lav nok. Den som gjør det godt på et 24-timers løp er den som klarer å holde det gående. Jevnt og trutt. En av de jeg snakket mye med i begynnelsen, løp 90 sekunder for deretter å gå 30 sekunder. Dette tror jeg han fulgte mer eller mindre slavisk hele veien. Han nådde 213 km. Utrolig imponerende.
+- Aldri mer. Det tenkte jeg underveis. Og dagen etter. Mandag og tirsdag var jeg litt mer tvilende. Onsdag er jeg klar igjen. Har lyst til å få et greit resultat en eller annen gang. Men ikke i år.
+- Funksjonærene og arrangørene fortjener oppmerksomhet! Makan til proft opplegg! Og makan til positive og hjelpsomme funksjonærer! At de orker å serve oss time etter time, tømme søppelbøtter, koke kaffe og pleie sår. Ufattelig.
+- Jeg har tidligere vært utrolig imponert over de som driver med dette. Nå er min beundring nesegrus. Hva er de laget av, de som holder ut time etter time og når over 200 km? Ikke vet jeg, men det er et annet stoff enn det jeg selv er laget av ihvertfall.
+
+Da var det bare å lene seg tilbake og vente på julenissen.
+
+/pj
